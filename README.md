@@ -6,6 +6,7 @@ Site is written in:
 HTML 5
 CSS 3
 JavaScript
+Jquery
 
 Site has:
 3 tabs
