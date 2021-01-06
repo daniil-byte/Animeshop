@@ -16,6 +16,7 @@ University Logo
 
 by Aleshin Daniil(COM-19)
 
+
 ![alt text](https://sun9-8.userapi.com/impg/XCJqxehNfuPSVKWaVyGfhbOiP0btMyrpjQZqDQ/0p2Q_rFrIu4.jpg?size=1920x1080&quality=96&proxy=1&sign=fe287141ec704c546e53d8e59a84f6c8&type=album)
 
 ![alt text](https://sun9-63.userapi.com/impg/XS9wdkTT4p_r8VDXJWq3Ibyn2hpGIwUfFFhsLg/K3pZpLj9RdA.jpg?size=1920x1080&quality=96&proxy=1&sign=d320c0b4dae1683053121e0b7c34f4ac&type=album)
