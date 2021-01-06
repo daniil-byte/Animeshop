@@ -30,4 +30,5 @@ by Aleshin Daniil(COM-19)
 ![alt text](https://sun9-54.userapi.com/impg/_t_rzx_zGrxd9nysTplUKRWy9Mm44I3M9PpR_w/0e9kqwjo2w8.jpg?size=1920x1080&quality=96&proxy=1&sign=e980de8d4e91827ca332369620a24642&type=album)
 
 Video feedback by Zhanuzak Temirov: https://youtu.be/3bORVECzBO8 .
-Text feedbacks: https://vk.com/wall512764818_1
+Text feedbacks: https://vk.com/wall512764818_1 .
+Video feedback by Professional programmer from Neobis company-Zhusupov Aktan: https://youtu.be/PZVW6wENzCM .
