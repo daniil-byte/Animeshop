@@ -27,3 +27,5 @@ by Aleshin Daniil(COM-19)
 ![alt text](https://sun9-39.userapi.com/impg/nMAMRm0RKTIdlmilscpRyztuCk2Xq2IqnBUTiA/1WMCoAWSLWk.jpg?size=1920x1080&quality=96&proxy=1&sign=a5532f64af49d25ecb680cf2b42143d1&type=album)
 
 ![alt text](https://sun9-54.userapi.com/impg/_t_rzx_zGrxd9nysTplUKRWy9Mm44I3M9PpR_w/0e9kqwjo2w8.jpg?size=1920x1080&quality=96&proxy=1&sign=e980de8d4e91827ca332369620a24642&type=album)
+
+Video feedback by Zhanuzak Temirov https://youtu.be/3bORVECzBO8 .
