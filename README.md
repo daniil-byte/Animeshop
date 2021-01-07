@@ -32,3 +32,4 @@ by Aleshin Daniil(COM-19)
 Video feedback by Zhanuzak Temirov: https://youtu.be/3bORVECzBO8 .
 Text feedbacks: https://vk.com/wall512764818_1 .
 Video feedback by Professional programmer from Neobis company-Zhusupov Aktan: https://youtu.be/PZVW6wENzCM .
+Video feedback part 2 by Aktan Zhusupov: https://youtu.be/lc75RdHO3vU .
